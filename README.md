@@ -1,0 +1,2 @@
+# H-seyin
+Otoyıkamacı rus
